@@ -1,0 +1,1 @@
+this script was a huge dupe but it got patched, but their are way more features like auto farming, auto mini games,auto vending machines, auto daycare, auto farm gems (f2p), and way more, script gets updates daily so keep checking in and using the script! helps alot
